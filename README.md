@@ -72,3 +72,16 @@ No **Menu**, ficará localizado o menu de navegação (ah vá!), no **Header** d
 Desafio está lançado! Com tudo que aprendemos no Módulo II é perfeitamente possível criar este site! 
 
 Bora pra cima!
+
+<img width="1198" height="946" alt="image" src="https://github.com/user-attachments/assets/70f9ab04-7aa0-47ff-b68f-0a89ee39aec3" />
+
+<img width="1199" height="948" alt="image" src="https://github.com/user-attachments/assets/09510af1-e7b3-4d9b-b908-1c1027d4ae29" />
+
+<img width="1199" height="905" alt="image" src="https://github.com/user-attachments/assets/0d391b97-49f6-42a2-aa6b-1cca7452699d" />
+
+<img width="1196" height="939" alt="image" src="https://github.com/user-attachments/assets/a61bc0d7-c1e5-4c57-b2b1-4c2cea08cd3a" />
+
+<img width="1200" height="947" alt="image" src="https://github.com/user-attachments/assets/49c6459f-f7dd-43ba-a6de-1a4a6cad257b" />
+
+<img width="1115" height="788" alt="image" src="https://github.com/user-attachments/assets/1c46989e-80b0-43c7-9b7f-c5de6e28b684" />
+
